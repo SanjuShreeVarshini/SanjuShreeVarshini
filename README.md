@@ -1,5 +1,6 @@
 
 🌟 About Me
+
 Hi there! I'm a passionate coder, problem solver, and a tech enthusiast who thrives on learning and growing every day. I love transforming ideas into impactful solutions and diving into the world of innovation.
 
 ✨ What I Bring to the Table
